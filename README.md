@@ -10,7 +10,7 @@ In my free time, I enjoy playing video games, reading sci-fi novels, and listeni
 - 📫 If you want to rech out for me take a look at my profile
 - ⚡ Fun fact: I love Games, Electronic Music and Chocolate!
 
-🕊️PLAY GAMES & MAKE {CODE}, DON'T WAR!🕊️
+🕊️PLAY GAMES & MAKE {CODE}, NOT WAR!🕊️
 
 <!--
 **benjaminzollmann/benjaminzollmann** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
